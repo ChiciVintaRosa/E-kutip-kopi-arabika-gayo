@@ -1,1 +1,0 @@
-# E-kutip-kopi-arabika-gayo
